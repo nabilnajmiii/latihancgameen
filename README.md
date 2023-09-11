@@ -1,0 +1,2 @@
+# latihancgameen
+OGHEYYY LESSSGHOOOO
